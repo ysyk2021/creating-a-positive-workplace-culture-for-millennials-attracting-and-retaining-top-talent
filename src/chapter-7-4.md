@@ -26,7 +26,7 @@ To promote work-life balance, it's important to create a supportive environment 
 
 4. **Setting clear boundaries**: Set clear boundaries on work expectations and communicate them to employees to help them balance work demands with personal responsibilities.
 
-5. **Leading by examplee**: Managers and leaders should model work-life balance behaviors themselves and encourage their teams to do the same.
+5. **Leading by example**: Managers and leaders should model work-life balance behaviors themselves and encourage their teams to do the same.
 
 Examples of Organizations with Work-Life Balance Initiatives
 ------------------------------------------------------------
