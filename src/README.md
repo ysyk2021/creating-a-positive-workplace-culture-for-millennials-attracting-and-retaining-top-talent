@@ -10,4 +10,4 @@ In each chapter, we will provide real-life examples and case studies of companie
 
 This book is intended for anyone responsible for shaping the culture of their organization but is particularly relevant for HR and people managers. Whether you are looking to attract and retain top talent or simply improve the work environment for existing employees, this book will provide you with the information and tools you need to create a positive workplace culture for millennials.
 
-MingHai Zheng is a writer based in Wuhan, China, who focuses on writing articles about workplace and management topics. He has written hundreds of articles on these topics and is dedicated to sharing his insights and experiences with others who are interested in improving their careers and their businesses.
+MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
