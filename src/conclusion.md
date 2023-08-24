@@ -1,5 +1,4 @@
 
-
 Creating a positive workplace culture is essential for attracting and retaining top millennial talent. In this book, we have explored key strategies for creating a positive workplace culture that fosters engagement, productivity, and retention among millennials. In this final chapter, we will recap these strategies and provide some final thoughts and advice.
 
 Recap of Key Strategies for Creating a Positive Workplace Culture for Millennials
