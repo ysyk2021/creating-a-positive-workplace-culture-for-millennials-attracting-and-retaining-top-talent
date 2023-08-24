@@ -1,5 +1,3 @@
-Encouraging Employee Recognition and Appreciation
-==================================================================================================
 
 Employee recognition and appreciation are essential components of a positive workplace culture. They can contribute to increased employee engagement, job satisfaction, and productivity, while also reducing turnover rates. In this chapter, we will explore the importance of employee recognition and appreciation and discuss strategies for nurturing a positive company culture through these practices.
 

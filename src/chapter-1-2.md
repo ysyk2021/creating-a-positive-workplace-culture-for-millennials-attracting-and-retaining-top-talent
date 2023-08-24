@@ -1,5 +1,3 @@
-Common Misconceptions About Millennials
-================================================================
 
 There are many misconceptions about millennials that can impact how businesses attract and retain top talent. In this chapter, we will explore some common misconceptions about millennials and provide evidence-based insights to help businesses better understand this generation.
 

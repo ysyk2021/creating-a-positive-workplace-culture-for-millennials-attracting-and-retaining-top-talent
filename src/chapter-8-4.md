@@ -1,5 +1,3 @@
-Adapting to Technological Advances
-=====================================================================================
 
 Technological advances are rapidly changing the workplace, and adapting to these changes can be a challenge for businesses. In this chapter, we will explore how to overcome challenges and reservations related to technological advances in creating a positive workplace culture for millennials.
 

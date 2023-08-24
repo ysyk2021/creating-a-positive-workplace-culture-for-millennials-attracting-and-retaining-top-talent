@@ -1,5 +1,3 @@
-Meeting the Needs of Millennial Employees
-======================================================================================================
 
 Understanding millennial values and expectations is essential for creating a positive workplace culture that meets the needs of millennials. In this chapter, we will explore the values and expectations of millennials in the workplace, discuss strategies for meeting their needs, and provide examples of organizations that have successfully created a workplace culture that meets the needs of millennial employees.
 

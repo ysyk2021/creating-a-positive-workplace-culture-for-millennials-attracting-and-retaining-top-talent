@@ -1,5 +1,3 @@
-The Importance of Workplace Culture for Millennials
-==========================================================================================
 
 Workplace culture is the shared values, beliefs, attitudes, and behaviors that characterize an organization. It sets the tone for employee interactions and influences how work is done within the company. In this chapter, we will define workplace culture and explore its importance for millennials in today's workforce.
 

@@ -1,5 +1,3 @@
-Strategies for Encouraging Collaboration and Teamwork
-======================================================================================================
 
 Encouraging collaboration and teamwork is essential for building a positive workplace culture that meets the needs of millennials. In this chapter, we will explore the importance of collaboration and teamwork, discuss strategies for encouraging these practices, and provide examples of organizations that have successfully fostered collaborative and team-oriented environments.
 

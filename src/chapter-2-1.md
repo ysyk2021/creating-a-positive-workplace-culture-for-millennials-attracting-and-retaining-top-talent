@@ -1,5 +1,3 @@
-Overview of Workplace Culture
-====================================================================
 
 Workplace culture is the shared values, beliefs, attitudes, and behaviors that characterize an organization. It sets the tone for employee interactions and influences how work is done within the company. In this chapter, we will provide an overview of workplace culture and its key components.
 

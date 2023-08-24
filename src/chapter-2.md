@@ -1,5 +1,3 @@
-Chapter 2: Defining Workplace Culture
-=====================================
 
 Workplace culture refers to the shared values, beliefs, behaviors, and practices that shape the way people work together within an organization. It encompasses everything from the physical environment to the unwritten rules and norms that guide behavior. In this chapter, we will explore the definition of workplace culture, its importance for millennials, and how to assess your current workplace culture.
 

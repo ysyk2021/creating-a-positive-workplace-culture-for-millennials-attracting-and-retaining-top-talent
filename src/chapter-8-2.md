@@ -1,5 +1,3 @@
-Dealing with Inter-Generational Conflicts
-============================================================================================
 
 Inter-generational conflicts can arise in the workplace when employees from different generations have different values, expectations, and communication styles. In this chapter, we will explore the challenges and reservations associated with inter-generational conflicts, discuss strategies for overcoming them, and provide examples of organizations that have successfully managed inter-generational conflicts.
 

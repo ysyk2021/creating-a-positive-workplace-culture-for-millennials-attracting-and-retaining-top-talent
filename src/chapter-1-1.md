@@ -1,5 +1,3 @@
-Understanding the Millennial Generation
-================================================================
 
 Millennials are the largest generation in the workforce today, and understanding their values and expectations is essential for creating a positive workplace culture that attracts and retains top talent. In this chapter, we will explore key characteristics of the millennial generation and how they impact workplace culture.
 

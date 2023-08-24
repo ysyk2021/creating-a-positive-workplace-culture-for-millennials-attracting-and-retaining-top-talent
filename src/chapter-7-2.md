@@ -1,5 +1,3 @@
-Celebrating Successes and Achievements
-=======================================================================================
 
 Celebrating successes and achievements is essential for creating a positive workplace culture that meets the needs of millennials. In this chapter, we will explore the importance of celebrating successes and achievements in the workplace, discuss strategies for doing so, and provide examples of organizations that have successfully celebrated successes and achievements.
 

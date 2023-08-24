@@ -1,5 +1,3 @@
-Understanding Millennial Values and Priorities
-===========================================================================================================
 
 Understanding millennial values and priorities is essential for creating a positive workplace culture that meets the needs of millennials. In this chapter, we will explore the values and priorities of millennials in the workplace, discuss the impact of these values on the workplace, and provide examples of organizations that have successfully aligned with millennial values.
 

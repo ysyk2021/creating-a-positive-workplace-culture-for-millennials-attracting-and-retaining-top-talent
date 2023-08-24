@@ -1,5 +1,3 @@
-Reflection and Self-Evaluation
-================================================================================
 
 Creating a positive workplace culture for millennials requires continuous improvement and evaluation, including reflection and self-evaluation. In this chapter, we will explore strategies for reflection and self-evaluation in the workplace.
 

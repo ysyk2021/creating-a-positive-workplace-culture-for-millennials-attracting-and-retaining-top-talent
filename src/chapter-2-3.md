@@ -1,5 +1,3 @@
-Assessing Your Current Workplace Culture
-===============================================================================
 
 Assessing your current workplace culture is the first step in creating a positive and productive work environment. In this chapter, we will explore how to assess your current workplace culture and identify areas for improvement.
 

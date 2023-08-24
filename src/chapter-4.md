@@ -1,5 +1,3 @@
-Chapter 4: Building a Positive Work Environment
-===============================================
 
 Building a positive work environment is essential for attracting and retaining top millennial talent. In this chapter, we will explore strategies for creating a supportive and inclusive workplace, encouraging collaboration and teamwork, fostering innovation and creativity, and developing a flexible work environment.
 

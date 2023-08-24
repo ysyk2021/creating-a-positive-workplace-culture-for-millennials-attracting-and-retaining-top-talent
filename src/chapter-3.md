@@ -1,5 +1,3 @@
-Chapter 3: Understanding Millennial Values and Expectations
-===========================================================
 
 Millennials, also known as Gen Y, are the largest generation in the workforce today. They bring with them unique values, expectations, and priorities that shape their attitudes towards work and life. In this chapter, we will explore the key characteristics of the millennial generation, their values and priorities, and how organizations can meet the needs of millennial employees.
 

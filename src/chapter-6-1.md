@@ -1,5 +1,3 @@
-Understanding the Role of Technology and Social Media
-========================================================================================================================
 
 Technology and social media have become an integral part of our daily lives, especially for millennials. In this chapter, we will explore the role of technology and social media in the workplace and how they can be used to attract and retain top talent.
 

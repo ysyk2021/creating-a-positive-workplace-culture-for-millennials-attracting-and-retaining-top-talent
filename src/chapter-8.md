@@ -1,5 +1,3 @@
-Chapter 8: Overcoming Challenges and Reservations
-=================================================
 
 Creating a positive workplace culture for millennials can face challenges and reservations from employees, leadership, and inter-generational conflicts. In this chapter, we will explore strategies for addressing resistance to change, dealing with inter-generational conflicts, handling pushback from leadership, and adapting to technological advances.
 

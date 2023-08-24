@@ -1,5 +1,3 @@
-Chapter 7: Nurturing a Positive Company Culture
-===============================================
 
 Nurturing a positive company culture is essential for attracting and retaining top millennial talent. In this chapter, we will explore strategies for incorporating company values into daily operations, celebrating successes and achievements, encouraging employee recognition and appreciation, and promoting work-life balance.
 

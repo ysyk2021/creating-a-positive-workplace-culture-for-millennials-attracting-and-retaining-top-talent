@@ -1,5 +1,3 @@
-Adapting to Changes in the Workplace
-======================================================================================
 
 Creating a positive workplace culture for millennials requires continuous improvement and evaluation, as well as adapting to changes in the workplace. In this chapter, we will explore how to adapt to changes in the workplace through continuous improvement and evaluation.
 

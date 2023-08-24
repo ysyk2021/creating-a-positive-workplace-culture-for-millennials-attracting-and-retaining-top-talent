@@ -1,5 +1,3 @@
-Providing Access to State-of-the-Art Tools and Software
-==========================================================================================================================
 
 Embracing technology and social media in the workplace is essential for creating a positive workplace culture that meets the needs of millennials. In this chapter, we will explore the importance of technology and social media in the workplace, discuss strategies for providing access to state-of-the-art tools and software, and provide examples of organizations that have successfully embraced technology and social media.
 

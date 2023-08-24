@@ -1,5 +1,3 @@
-Supporting Continued Learning
-============================================================================================
 
 Supporting continued learning is essential for creating a positive workplace culture that meets the needs of millennials. In this chapter, we will explore the importance of continued learning in the workplace, discuss strategies for supporting it, and provide examples of organizations that have successfully supported continued learning.
 

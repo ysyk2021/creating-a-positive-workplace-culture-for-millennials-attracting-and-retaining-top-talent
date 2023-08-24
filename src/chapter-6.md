@@ -1,5 +1,3 @@
-Chapter 6: Embracing Technology and Social Media in the Workplace
-=================================================================
 
 Embracing technology and social media is essential for attracting and retaining top millennial talent. In this chapter, we will explore strategies for understanding the role of technology and social media, utilizing technology to enhance communication and productivity, managing social media use in the workplace, and providing access to state-of-the-art tools and software.
 

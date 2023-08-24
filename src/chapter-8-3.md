@@ -1,5 +1,3 @@
-Handling Pushback from Leadership
-====================================================================================
 
 Creating a positive workplace culture for millennials can face resistance from leadership who may have different values or priorities. In this chapter, we will explore how to handle pushback from leadership when implementing strategies for creating a positive workplace culture.
 

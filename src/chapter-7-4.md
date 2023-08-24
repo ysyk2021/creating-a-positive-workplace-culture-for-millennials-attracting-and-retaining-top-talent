@@ -1,5 +1,3 @@
-Promoting Work-Life Balance
-============================================================================
 
 Promoting work-life balance is critical for creating a positive workplace culture that meets the needs of millennials. In this chapter, we will discuss the importance of work-life balance, explore strategies for promoting it, and provide examples of organizations that have successfully created work-life balance initiatives.
 

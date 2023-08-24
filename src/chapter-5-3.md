@@ -1,5 +1,3 @@
-Providing Regular Feedback and Coaching
-======================================================================================================
 
 Providing opportunities for growth and development is essential for creating a positive workplace culture that meets the needs of millennials. In this chapter, we will explore the importance of regular feedback and coaching in the workplace, discuss strategies for providing them, and provide examples of organizations that have successfully implemented regular feedback and coaching programs.
 

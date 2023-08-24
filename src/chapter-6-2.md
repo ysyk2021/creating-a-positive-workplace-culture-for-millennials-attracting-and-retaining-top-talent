@@ -1,5 +1,3 @@
-Utilizing Technology to Enhance Communication and Productivity
-=================================================================================================================================
 
 Technology has become an integral part of our daily lives, especially for millennials. As such, it's important for businesses to embrace technology and social media to attract and retain top talent. In this chapter, we will explore how utilizing technology can enhance communication and productivity in the workplace.
 

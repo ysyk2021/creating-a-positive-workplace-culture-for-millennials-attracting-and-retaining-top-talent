@@ -1,5 +1,3 @@
-Incorporating Company Values into Daily Operations
-===================================================================================================
 
 Incorporating company values into daily operations is essential for creating a positive workplace culture that meets the needs of millennials. In this chapter, we will explore the importance of company values in the workplace, discuss strategies for incorporating them into daily operations, and provide examples of organizations that have successfully integrated their values into their daily operations.
 

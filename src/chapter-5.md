@@ -1,5 +1,3 @@
-Chapter 5: Providing Opportunities for Growth and Development
-=============================================================
 
 Providing opportunities for growth and development is essential for attracting and retaining top millennial talent. In this chapter, we will explore strategies for understanding the importance of professional development, developing career paths and advancement opportunities, providing regular feedback and coaching, and supporting continued learning.
 

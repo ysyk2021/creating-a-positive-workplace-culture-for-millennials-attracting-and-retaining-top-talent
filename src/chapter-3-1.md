@@ -1,5 +1,3 @@
-Key Characteristics of the Millennial Generation
-=============================================================================================================
 
 Millennials make up a significant portion of the workforce, and understanding their values and expectations is essential for creating a positive workplace culture that attracts and retains top talent. In this chapter, we will explore key characteristics of the millennial generation and how they impact workplace culture.
 

@@ -1,5 +1,3 @@
-Continuously Learning and Improving
-=====================================================================================
 
 Creating a positive workplace culture for millennials requires continuous improvement and evaluation, including continuously learning and improving. In this chapter, we will explore strategies for continuously learning and improving workplace culture.
 

@@ -1,5 +1,3 @@
-Creating a Supportive and Inclusive Workplace
-==============================================================================================
 
 A supportive and inclusive workplace environment is critical for creating a positive workplace culture that meets the needs of millennials. In this chapter, we will explore the importance of building a supportive and inclusive workplace, discuss strategies for creating such an environment, and provide examples of organizations that have successfully done so.
 

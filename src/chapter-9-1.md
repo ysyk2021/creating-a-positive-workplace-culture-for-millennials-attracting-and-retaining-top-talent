@@ -1,5 +1,3 @@
-Tracking Progress and Measuring Results
-=========================================================================================
 
 Creating a positive workplace culture for millennials requires continuous improvement and evaluation, including tracking progress and measuring results. In this chapter, we will explore strategies for tracking progress and measuring the results of workplace culture initiatives.
 

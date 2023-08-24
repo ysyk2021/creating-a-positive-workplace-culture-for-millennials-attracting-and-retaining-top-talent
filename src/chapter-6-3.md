@@ -1,5 +1,3 @@
-Managing Social Media Use in the Workplace
-=============================================================================================================
 
 Technology and social media are an essential part of daily life for millennials, and incorporating these tools into the workplace can help create a positive workplace culture that meets their needs. In this chapter, we will explore the benefits and challenges of incorporating technology and social media into the workplace, discuss strategies for managing social media use, and provide examples of organizations that have successfully embraced technology and social media in the workplace.
 
