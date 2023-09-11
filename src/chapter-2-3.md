@@ -1,5 +1,4 @@
-Chapter 3: Assessing Your Current Workplace Culture
-===================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will guide you through the process of assessing your current workplace culture. Understanding the existing cultural dynamics and identifying areas for improvement is essential to creating a positive environment that attracts and retains millennial talent.
 

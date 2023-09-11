@@ -1,5 +1,4 @@
-Chapter 2: Overview of Workplace Culture
-========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will provide an overview of workplace culture and its significance in attracting and retaining top millennial talent. Understanding the key elements and characteristics of a positive workplace culture is essential for creating an environment that fosters employee engagement, satisfaction, and productivity.
 
